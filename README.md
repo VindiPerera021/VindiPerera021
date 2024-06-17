@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @VindiPerera021
+- 👀 I’m interested in UI Designing  & Robotics
+- 🌱 I’m currently pursuing a degree in software engineering
+- 💞️ I’m looking to collaborate on engage in various projects to gain practical experience
+- 📫 How to reach me https://www.linkedin.com/in/vindi-perera-340071291/
